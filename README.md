@@ -1,0 +1,2 @@
+# amos
+Amos – privacy policy
